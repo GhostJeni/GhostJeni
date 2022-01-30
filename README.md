@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GhostJeni! (she/her - a/ela/a)
+- 👀 I’m interested in: cartoons, games, mods, dnd, story telling, horror and cute stuff :)
+- 🌱 I’m currently learning: how to be a productive member of society :(
+- 📫 How to reach me: discord GhostJeni#9157 or steam GhostJeni
